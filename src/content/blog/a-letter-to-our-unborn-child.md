@@ -33,7 +33,7 @@ You’ll humble us.
 
 You’ll learn that you had humbled us much, much sooner. 
 
-You’ll learn that from the moment you were born, you begun to teach us about the world, about life, about learning. 
+You’ll learn that from the moment you were born, you began to teach us about the world, about life, about learning. 
 
 You’ll learn that you’d taught us to be brave, how to be strong, that few things need us to be so serious. 
 
@@ -41,7 +41,7 @@ You’ll learn that we’ve been peers the whole time.
 
 That we’ll learn together until our last moment. 
 
-And that we’ll live you beyond it. 
+And that we’ll love you beyond it. 
 
 With love, 
 Your Parents
